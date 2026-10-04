@@ -1,4 +1,4 @@
-## Hi there 👋
+[![Untitled72-20261004122249.png](https://i.postimg.cc/bJNzQLcj/Untitled72-20261004122249.png)](https://postimg.cc/JyvV8NzT)
 
 <!--
 **decayingflames/decayingflames** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
