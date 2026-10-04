@@ -1,5 +1,6 @@
+![Untitled73-20261004150710.png](https://files.catbox.moe/dpb95e.png)
 [![Untitled72-20261004122249.png](https://i.postimg.cc/bJNzQLcj/Untitled72-20261004122249.png)](https://postimg.cc/JyvV8NzT)
-
+![Untitled73-20261004150710.png](https://files.catbox.moe/cz8ac6.png)
 <!--
 **decayingflames/decayingflames** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
